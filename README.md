@@ -1,1 +1,0 @@
-# Hafta-7-devim
